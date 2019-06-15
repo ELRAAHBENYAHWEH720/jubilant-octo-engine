@@ -75,7 +75,7 @@ Provide Petroleum Products and derivatives
 (CGC) Conley Global Consulting LLC, Markzavious E. Conley
 http://markzavious.wix.com/cgc-conley-global-consulting-llc
 
-Phone 1-678-465-7783
+Phone 1-786-516-6923
  
 The following message is for any/all Corporate Agents/ informants/investigators et. al working in collusion by monitoring my mail and any other communications without my permission
 
@@ -85,7 +85,7 @@ MARKZAVIOUS CONLEY
 SP/C Secured Party Creditor
 2012-286-9414-0
 SOVEREIGNTY FILLINGS
-http://makefreedom.com/SFS/?ap_id=markzavious
+http://markzavious.wix.com/cgc-conley-global-consulting-llc
  
 DUE PRO SE, LEARN LAW ON YOUR OWN REPRESENT YOUR SELF
 www.Jurisdictionary.com?refercode=CM0022
